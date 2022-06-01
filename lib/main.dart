@@ -60,7 +60,8 @@ class _MyHomePageState extends State<MyHomePage> {
                   ' try to upload daily for 365 content'
                   'today is jestha 18 june 1 2022  to be ended in chaitra last of 2079'
                   ' make a promise today that i will STOP Everything for good life'
-                  'You have lived upto your reputation.',
+                  'You have lived upto your reputation.'
+                  'TABULA RASA ',
             ),
             Text(
               '$_counter',
