@@ -1,0 +1,6 @@
+Day 30
+On Looking like a fool| Humiliation.
+You have to look like a fool, while you're looking for answers you don't have.
+
+If you want to rise above mediocrity, you need to be fine with the fact that you'll undoubtedly make a fool of yourself everynow and then. This is normal-you have to fail your way to the success-but for many people, it's a blow they can't withstand. They might be so harmed by it that they'll do anything to avoid future humiliation-including giving up on their goals. Failure, rejection and humiliation are anything but pleasant. However, the ability to  withstand it and keep going is one of the key differences between successful individuals and those who fail to make their dreams come true.
+As disagreeable as it can be, accept that occasionally looking like a fool as a part of the process of becoming a successful person. Fortunately, the more oftern you voluntarily expose  yourself to rejection, humiliation or failure, the easier it will be to handle the feeling they generate.
