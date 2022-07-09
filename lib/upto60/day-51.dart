@@ -1,0 +1,5 @@
+Day 51
+On Taking Action, inspite of Potential Criticism
+
+Some people don't want to start because they're afraid others will laugh at their inability to achieve their goals. They are afraid that their friends will talk behind their backs. Thousands of people dream of entrepreneurship, but are afraid to take the first step, because if their business fails, their ego will suffer too hard of a blow. Self-discipline isn't only about forcing yourself to do things that are unpleasant for the sake of long-term goals. It's also about resisting the temptations to stay medicore in order to avoid criticism. Staying in your comfort zone is safe and there's little criticism however there's a high price associated with this choice: you won't ever get to change your current situations.
+Over the long term,how important is it really that some unintelligent meathead smirks at you, judge you. When you're struggling for your goals, for your purpose? Is the momentary pain of that really greater than the pain of regret when you realize that another year has passed without you acting on your goals?
